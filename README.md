@@ -1,1 +1,1 @@
-# Prizvyshe_Lab1\
+# Prizvyshe_Lab1 Rabin Pavlo
