@@ -1,2 +1,2 @@
  Rabin Pavlo
-https://1drv.ms/w/s!Aor_CyQs7pjsbhb_kmgFsTSugak?e=7u8HgO
+https://docs.google.com/document/d/e/2PACX-1vRgo_EYce75_PU3u4E283wh72vjNBbts8dreebI4vPNyBnIRvKPeUhqo2DppGbljl_3fSUjnq4oDPsP/pub
